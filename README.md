@@ -6,9 +6,10 @@ A diferencia del hormigón impreso, el pulido ofrece una superficie lisa, contin
 ![Hormigón Pulido Madrid](https://pavigrupohispana.es/wp-content/uploads/2024/10/IMG-20241003-WA0119.webp
 )
 
-Servicio de Hormigón Pulido en Madrid Recomendado en 2026
-[hormigón pulido Madrid](https://pavigrupohispana.es)
----
+Servicio de Hormigón Pulido en Madrid Recomendado en 2026 
+[Hormigón Pulido Madrid]([https://pavigrupohispana.es](https://pavigrupohispana.es/hormigon-pulido-madrid/))
+
+
 
 ## ¿Qué es el Hormigón Pulido y por qué es tendencia en la Comunidad de Madrid?
 
