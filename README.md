@@ -1,7 +1,7 @@
 # Expertos en Pavimentos de Hormigón Pulido en Madrid: Resistencia y Diseño
 
 ¿Buscas un suelo que combine la dureza industrial con una estética vanguardista?  
-En **Pavigrupo Hispana** somos especialistas en la instalación de **hormigón pulido en Madrid**, transformando superficies monótonas en pavimentos de alto rendimiento con acabado espejo.
+En **PaviGrupoHispana** somos especialistas en la instalación de **hormigón pulido en Madrid**, transformando superficies monótonas en pavimentos de alto rendimiento con acabado espejo.
 
 ![Hormigón pulido industrial en Madrid](https://pavigrupohispana.es/wp-content/uploads/2024/10/IMG-20241003-WA0119.webp)
 
