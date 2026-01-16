@@ -3,6 +3,8 @@
 ¿Buscas un suelo que combine la dureza industrial con una estética vanguardista? En **Pavigrupo Hispana** somos especialistas en la instalación de **hormigón pulido en Madrid**, transformando superficies monótonas en pavimentos de alto rendimiento con acabado espejo. 
 
 A diferencia del hormigón impreso, el pulido ofrece una superficie lisa, continua y extremadamente fácil de limpiar, ideal tanto para la logística de **San Fernando de Henares** como para los lofts de diseño en **Chamberí**.
+![Hormigón Pulido Madrid](https://pavigrupohispana.es/wp-content/uploads/2024/10/IMG-20241003-WA0119.webp
+)
 
 https://pavigrupohispana.es
 ---
