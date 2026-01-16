@@ -1,13 +1,3 @@
-# Estrategia de Contenido SEO 2026: Pavigrupo Hispana
-
-## Información del Documento
-* **Proyecto:** pavigrupo-hispana.es
-* **Keyword Principal:** Hormigón Pulido Madrid
-* **Target:** Industrial, Comercial y Residencial de Lujo
-* **Localización:** Comunidad de Madrid (Enfoque GEO-Localizado)
-
----
-
 # [H1] Expertos en Pavimentos de Hormigón Pulido en Madrid: Resistencia y Diseño
 
 ¿Buscas un suelo que combine la dureza industrial con una estética vanguardista? En **Pavigrupo Hispana** somos especialistas en la instalación de **hormigón pulido en Madrid**, transformando superficies monótonas en pavimentos de alto rendimiento con acabado espejo. 
