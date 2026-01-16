@@ -7,9 +7,7 @@ En **Pavigrupo Hispana** somos especialistas en la instalación de **hormigón p
 
 A diferencia del hormigón impreso, el pulido ofrece una superficie lisa, continua y extremadamente fácil de limpiar, ideal tanto para la logística de **San Fernando de Henares** como para los lofts de diseño en **Chamberí**.
 
-En **Pavigrupo Hispana** somos especialistas en la instalación de  
-[hormigón pulido madrid](https://pavigrupohispana.es/hormigon-pulido-madrid/),  
-transformando superficies monótonas en pavimentos de alto rendimiento con acabado espejo.
+En **PaviGrupoHispana** somos especialistas en la instalación de [hormigón pulido madrid](https://pavigrupohispana.es/hormigon-pulido-madrid/), transformando superficies monótonas en pavimentos de alto rendimiento con acabado espejo.
 
 ---
 
